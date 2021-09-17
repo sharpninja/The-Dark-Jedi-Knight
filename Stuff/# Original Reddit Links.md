@@ -4,5 +4,5 @@
 
 # My Thread
 
-* [The Darke Jedi Knight](https://www.reddit.com/r/whowouldwin/comments/plciu8/batman_is_teleported_into_the_star_wars_galaxy/hcuzea4?utm_source=share&utm_medium=web2x&context=3)
+* [The Dark Jedi Knight](https://www.reddit.com/r/whowouldwin/comments/plciu8/batman_is_teleported_into_the_star_wars_galaxy/hcuzea4?utm_source=share&utm_medium=web2x&context=3)
 * [Sensitivity](https://www.reddit.com/r/whowouldwin/comments/plciu8/batman_is_teleported_into_the_star_wars_galaxy/hd2ntkx?utm_source=share&utm_medium=web2x&context=3)
