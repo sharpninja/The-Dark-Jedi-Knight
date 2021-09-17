@@ -42,4 +42,4 @@ Bruce yells out "Who said that?"  Just then a tall hooded figure with a black ca
 
 "Training?  For what?"
 
-"For killing the Emporer.  It will take oue combined powers to defeat him."
+"For killing the Emperor.  It will take our combined powers to defeat him."
