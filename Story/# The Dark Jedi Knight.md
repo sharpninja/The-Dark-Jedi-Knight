@@ -1,4 +1,4 @@
-# The Dark Jedi Knight
+# I. The Dark Jedi Knight
 
 Bruce Wayne wakes up in the brig of ... Something big.  Nothing feels right.  No, nothing feels _the same._
 
